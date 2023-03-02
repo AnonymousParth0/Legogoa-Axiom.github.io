@@ -30,7 +30,9 @@ menu:
 
 ![image](/images/sponsors/sponsors3.png)
 
+## Team Legogoa Axi0m would like to thank Dempo Groups 
 
+![image](/images/sponsors/sponsor2.jpg)
 
 <br>
 
